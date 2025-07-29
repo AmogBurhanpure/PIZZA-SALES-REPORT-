@@ -49,5 +49,5 @@ This dashboard helps:
 
 Amogsiddh Burhanpure 
 📧 Email: amogsidhaburhanpure@gmail.com 
-🔗| [GitHub] https://www.linkedin.com/in/amogsiddh-burhanpure-a9363928a/ 
+🔗linkedin :- https://www.linkedin.com/in/amogsiddh-burhanpure-a9363928a/ 
 
